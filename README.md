@@ -1,7 +1,4 @@
 
-Papa Samba Thiam
-
-Cylia Haddouche
 
 ### **Introduction**
 
